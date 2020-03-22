@@ -1,0 +1,1 @@
+# RrjetaKompjuterike_Detyra1
